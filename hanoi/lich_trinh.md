@@ -17,6 +17,7 @@ Ngày 1: Hà Nội -> Hạ Long ( ăn ở Bãi Cháy mắc, ăn ở kv hòn gai 
     - Sá sùng.
     - Bánh gật gù.
     - Bún bề bề.
+    
     - Bánh tài lồng ớt.
     - Bún xào ngán.
     - Gà đòi tiên yên.
@@ -96,3 +97,12 @@ Ngày 2: ăn sáng ở ks và tham quan vịnh Hạ Long.
 - bún than
   - 32 cầu gỗ, 48 cầu gỗ quận hoàn kiếm
   - 11 hoàn hòm quận hoàn kiếm.
+- bánh cuốn
+  - bà hoành 66 tô hiến thành
+  - thanh vân 81 lê văn hưu
+- bún đậu mắm tôm
+  - 27/29 hàng khây quận hoan2 kiếm mở cửa từ 10h~20h30
+  - 31 hàng khây 
+  - 54 phan huy ích
+- phở cuốn
+- bún đậu lòng nướng hoà râu 27 ngõ 16 hoàng cầu đống đa.
