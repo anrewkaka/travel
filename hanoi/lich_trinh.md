@@ -106,3 +106,24 @@ Ngày 2: ăn sáng ở ks và tham quan vịnh Hạ Long.
   - 54 phan huy ích
 - phở cuốn
 - bún đậu lòng nướng hoà râu 27 ngõ 16 hoàng cầu đống đa.
+
+## mua quà
+
+- cốm 
+  - cốm làng vòng bà hoản, 36 ngõ 63 xuân thuỷ cầu giấy
+  - bánh cốm nguyên ninh 11 hàng than hoàn kiếm
+  - cốm xào 1A đinh liệt hoàn kiếm
+- ô mai
+  - hồng lam, 11 hàng đương2 hoàng kiếm
+  - vạn lợi, 22 hàng da, hoàng kiếm
+- Trà sen
+  - cửa hàng ninh hương 22 hàng điếu quận hoàn kiếm
+  - tra đông sơn: 169 nghi tàm tây hồ
+  - tiệm trà việt: 34 giang vân minh ba đình
+- bánh chè lam
+  - làn thạnh xá thạch thất
+  - làng cổ đường lâm sơn tây
+- bánh chả
+  - cửa hàng bảo phương, 183 thuỵ khuê tây hồ
+  - cửa hàng ninh hương, 22 hàng điếu.
+  
