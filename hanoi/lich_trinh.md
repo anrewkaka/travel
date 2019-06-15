@@ -25,6 +25,8 @@ Ngày 2: ăn sáng ở ks và tham quan vịnh Hạ Long.
 
 ## Hà nội
 
+### phố bích hoạ phùng hưng
+
 ### Khu vực hồ hoàng kiếm.
 
 - Tháp rùa
@@ -62,4 +64,35 @@ Ngày 2: ăn sáng ở ks và tham quan vịnh Hạ Long.
 
 - đi dọc sông hồng từ cầu chương dương hay cầu vĩnh tuy là bạn đã đến làng gốm
 
+ ### những điểm vui chơi
  
+ 1. royal city nằm trên phố nguyễn trãi, quận thanh xuân, là trung tâm thương mại nằm dưới lòng đất của phố cổ (cvien6 nước, trượt băng, rạp chiếu phim)
+ 1. bến hàn quốc ở thôn đông nhật tân
+ - Vinpearl aquarium times city: khu thuỷ cung có các loại sinh vật chim cánh cụt và nàng tiên cá
+ 
+ ### ăn ở hà nội
+
+- phố ẩm thực
+  - đường lý quốc sư
+  - đường hàng mành
+  - đường hồ tây
+  - đường hồ hoàng kiếm
+- quán gốc đa, có bánh gói bánh rán mặn bán từ 9h~16h
+  - 52 lý quốc sư quân hoàng kiếm hà nội
+- cháo sườn
+  - 43 ngõ huyện quận hoàn kiếm bán từ 12h~18h30
+- phở
+  - phở ấu triệu, 34 ấu triệu quận hoàn kiếm.
+  - (ngon nhất) phở 13 lò đúc
+  - phổ 10 lý quốc sư
+  - 49 bát đàn quận hoàng kiếm
+- bún chả
+  - bún chả hàng mành, số 1 hàng mành quận hoàng kiếm mở cửa từ 8h30~21h
+  - 74 hàng quạt, 41 cửa đông
+  - quán hương liên, số 24 lê văn thu quận hai bà trưng
+  - bún chả lã vọng, 14 chả cá quận hoàng kiếm
+- bún chả kẹp que tre
+  - đoạn giao ngã tư nguyễn du với bà triệu
+- bún than
+  - 32 cầu gỗ, 48 cầu gỗ quận hoàn kiếm
+  - 11 hoàn hòm quận hoàn kiếm.
